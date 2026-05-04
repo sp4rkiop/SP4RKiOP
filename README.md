@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Abhishek Sinha
 - Contact me
 
-- [Telegram](https://t.me/foodie69)
 - <abhisheksp4rk@gmail.com>
 😎 [Portfolio](https://profile.abhisheksinha.dev)
 
